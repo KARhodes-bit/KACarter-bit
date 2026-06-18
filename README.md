@@ -1,4 +1,4 @@
-👋 Hi there! I'm Kendres Rhodes, a passionate cybersecurity student on a mission to safeguard the digital world.
+👋 Hi there! I'm Kendres Carter, a passionate cybersecurity student on a mission to safeguard the digital world.
 
 💻 What I Do
 Pursuing a degree in Cybersecurity
